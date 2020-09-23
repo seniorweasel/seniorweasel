@@ -15,3 +15,4 @@ __________________________________________________________________________
 - He hates CSS frameworks but he can use :) (he always use pure css)
 - Soo if you want him, feel free to contact with him lol :D
 __________________________________________________________________________
+- ⚡ 2nd Fun fact: I like Turtles!!

@@ -1,1 +1,1 @@
-![mainportfolio](https://i.imgur.com/9aClPgZ.png)
+![mainportfolio](https://imgur.com/DJmKWzG.png)
